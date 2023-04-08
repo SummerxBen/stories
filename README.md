@@ -442,7 +442,7 @@ Summary: 经历过原作的故事之后留下一些心理创伤的两人，在�
 <br/>
 END<br/>
 <br/>
-<br/>
+[文转漫](https://summerxben.github.io/comics/#%E5%A8%81%E5%B0%BC%E6%96%AF%E6%B3%AA%E7%BA%B9-by-zeloco)<br/>
 [Back to menu](https://summerxben.github.io/stories/#menu)
 <br/>
 <br/>
@@ -907,7 +907,7 @@ Summary: 一周天当天庆祝纪念日的故事，内含一些纠结婚恋观<b
 <br/>
 END<br/>
 <br/>
-<br/>
+[文转漫](https://summerxben.github.io/comics/#%E9%87%91%E8%99%B9%E4%B9%8B%E5%BF%83-by-%E7%8E%84%E7%8E%84%E7%8E%84%E7%8E%84%E7%8E%84)<br/>
 [Back to menu](https://summerxben.github.io/stories/#menu)
 <br/>
 <br/>
