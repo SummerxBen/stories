@@ -6,7 +6,7 @@
 4. [金虹之心 by 霍肆](https://summerxben.github.io/stories/#%E9%87%91%E8%99%B9%E4%B9%8B%E5%BF%83-by-%E9%9C%8D%E8%82%86)
 
 
-[回到首页](https://summerxben.github.io/Cursenday_Lovestory/)<br/>
+[首页](https://summerxben.github.io/Cursenday_Lovestory/)<br/>
 <br/>
 <br/>
 <br/>
