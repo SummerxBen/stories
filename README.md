@@ -906,3 +906,8 @@ Summary: 一周天当天庆祝纪念日的故事，内含一些纠结婚恋观<b
 “不，我在想你，”夏摇了摇头，一双眼睛眨了眨聚了焦，望着对方许久，又缓慢地，将这句话轻柔地重复了一遍，“本，我在想你。”<br/>
 <br/>
 END<br/>
+<br/>
+<br/>
+[Back to menu](https://summerxben.github.io/stories/#menu)
+<br/>
+<br/>
