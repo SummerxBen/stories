@@ -4,7 +4,6 @@
 2. [威尼斯泪纹 by 霍肆](https://summerxben.github.io/stories/#%E5%A8%81%E5%B0%BC%E6%96%AF%E6%B3%AA%E7%BA%B9-by-%E9%9C%8D%E8%82%86)
 3. [黑夜不再来 by 年年有鱼](https://summerxben.github.io/stories/#%E9%BB%91%E5%A4%9C%E4%B8%8D%E5%86%8D%E6%9D%A5-by-%E5%B9%B4%E5%B9%B4%E6%9C%89%E9%B1%BC)
 4. [金虹之心 by 霍肆](https://summerxben.github.io/stories/#%E9%87%91%E8%99%B9%E4%B9%8B%E5%BF%83-by-%E9%9C%8D%E8%82%86)
-<br/>
 
 4. [金虹之心 by 霍肆](https://summerxben.github.io/stories/#%E9%87%91%E8%99%B9%E4%B9%8B%E5%BF%83-by-%E9%9C%8D%E8%82%86)
 [回到首页](https://summerxben.github.io/Cursenday_Lovestory/)<br/>
