@@ -29,6 +29,12 @@
 <br/>
 <br/>
 <br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 
 ## 涉水（一） by 霍肆
 Summary: 两人刚刚在现实世界相遇的故事，后半部分有微量恐怖元素
@@ -287,6 +293,12 @@ TBC<br/>
 <br/>
 <br/>
 <br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 
 ## 威尼斯泪纹 by 霍肆
 Summary: 经历过原作的故事之后留下一些心理创伤的两人，在旅游的途中慢慢和自己和解的故事<br/>
@@ -432,6 +444,12 @@ END<br/>
 <br/>
 <br/>
 [Back to menu](https://summerxben.github.io/stories/#menu)
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 <br/>
 <br/>
 <br/>
@@ -694,9 +712,15 @@ END<br/>
 <br/>
 <br/>
 <br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
+<br/>
 
 ## 金虹之心 by 霍肆
 Summary: 一周天当天庆祝纪念日的故事，内含一些纠结婚恋观<br/>
-*后半部分有r18注意
+*后半部分有r18内容注意
 <br/>
 <br/>
